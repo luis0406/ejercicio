@@ -1,1 +1,1 @@
-# ejercicio
+1. desarrollador junior
